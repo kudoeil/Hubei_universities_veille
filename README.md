@@ -1,9 +1,11 @@
-# Veille scientifique  
-Dernières actualités  
+Dernières actualités scientifiques  
 _Province du Hubei_<br/>
 _Mis-à-jour : 2022-04-18_  
   
-Informations collectées pour les universités : `Wuhan University` `Huazhong University of Science and Technology` `Yangtze University` `Wuhan Institute of Technology`<br/>  
+Informations collectées sur les sites de : `Wuhan University` `Huazhong University of Science and Technology` `Yangtze University` `Wuhan Institute of Technology`<br/>  
+  
+Article mentionnat la France ?  
+  
 [应用新型光敏蛋白，让2000万盲人有望重见光明](http://news.whu.edu.cn/info/1015/66961.htm)  
 Apply new photosensitive proteins, let 200 million blind people are expected to see light  
 > 新闻网讯（通讯员杨岑）北京时间4月18日，自然杂志子刊《信号转导与靶向治疗》（Signal Transduction and Targeted Therapy  (...)  
