@@ -5,6 +5,7 @@ _Mis-à-jour : 2022-04-18_
 Informations collectées sur les sites de : `Wuhan University` `Huazhong University of Science and Technology` `Yangtze University` `Wuhan Institute of Technology`<br/>  
   
 Article(s) mentionnant la France ?  
+None
   
 [应用新型光敏蛋白，让2000万盲人有望重见光明](http://news.whu.edu.cn/info/1015/66961.htm)  
 Apply new photosensitive proteins, let 200 million blind people are expected to see light  
