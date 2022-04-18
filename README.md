@@ -1,6 +1,5 @@
 # Veille scientifique
-Dernières actualités </br> _Province du Hubei_ </br>  
-_Mis-à-jour :2022-04-18_ </br>  
+Dernières actualités </br> _Province du Hubei_ </br>`_Mise-à-jour : 2022-04-18_` </b`>  
 [应用新型光敏蛋白，让2000万盲人有望重见光明](http://news.whu.edu.cn/info/1015/66961.htm) </br> Apply new photosensitive proteins, let 200 million blind people are expected to see light </br> > 新闻网讯（通讯员杨岑）北京时间4月18日，自然杂志子刊《信号转导与靶向治疗》（Signal Transduction a (...) </br> 📍 **Wuhan University** - 🗓️  Publié le 2022-04-18 </br>      </br> 
 [学校召开思想政治工作领导小组和意识形态工作领导小组会议](http://news.yangtzeu.edu.cn/info/1003/30514.htm) </br> School convened the ideological and political work leading group and ideology work leading group meeting </br> > 新闻网讯（记者 汤慧珍）4月15日，学校在6教205会议室召开思想政治工作领导小组和意识形态工作领导小组会议，研究部署近 (...) </br> 📍 **Yangtze University** - 🗓️  Publié le 2022-04-18 </br>      </br> 
 [2021届本科毕业论文（设计）抽检结束](http://news.hust.edu.cn/info/1003/44371.htm) </br> 2021 undergraduate graduation thesis (design) sampling end </br> > 新闻网讯（通讯员 陈颖）为进一步提高本科毕业论文（设计）质量，4月7日至14日，学校聘请58位校内专家，对2021届本科 (...) </br> 📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-18 </br>      </br> 
