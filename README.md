@@ -1,8 +1,8 @@
-# Veille scientifique
-Dernières actualités
-_Province du Hubei_
-_Mis-à-jour : 2022-04-18_
-Informations collectées pour les universités : `Wuhan University` `Huazhong University of Science and Technology` `Yangtze University` `Wuhan Institute of Technology`</br>  
+# Veille scientifique  
+Dernières actualités  
+_Province du Hubei_<br/>
+_Mis-à-jour : 2022-04-18_  
+Informations collectées pour les universités : `Wuhan University` `Huazhong University of Science and Technology` `Yangtze University` `Wuhan Institute of Technology`<br/>  
 [应用新型光敏蛋白，让2000万盲人有望重见光明](http://news.whu.edu.cn/info/1015/66961.htm)  &nbsp;  Apply new photosensitive proteins, let 200 million blind people are expected to see light  &nbsp;  <blockquote>新闻网讯（通讯员杨岑）北京时间4月18日，自然杂志子刊《信号转导与靶向治疗》（Signal Transduction and Targeted Therapy  (...)</blockquote>📍 **Wuhan University** - 🗓️  Publié le 2022-04-18 </br> <hr /> </br> 
 [学校召开思想政治工作领导小组和意识形态工作领导小组会议](http://news.yangtzeu.edu.cn/info/1003/30514.htm)  &nbsp;  School convened the ideological and political work leading group and ideology work leading group meeting  &nbsp;  <blockquote>新闻网讯（记者 汤慧珍）4月15日，学校在6教205会议室召开思想政治工作领导小组和意识形态工作领导小组会议，研究部署近期思想政治和意识形态工作。校领导王建平、 (...)</blockquote>📍 **Yangtze University** - 🗓️  Publié le 2022-04-18 </br> <hr /> </br> 
 [2021届本科毕业论文（设计）抽检结束](http://news.hust.edu.cn/info/1003/44371.htm)  &nbsp;  2021 undergraduate graduation thesis (design) sampling end  &nbsp;  <blockquote>新闻网讯（通讯员 陈颖）为进一步提高本科毕业论文（设计）质量，4月7日至14日，学校聘请58位校内专家，对2021届本科毕业论文（设计）进行了随机抽查。专家对本 (...)</blockquote>📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-18 </br> <hr /> </br> 
