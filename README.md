@@ -4,7 +4,8 @@ _Mis-à-jour : 2022-04-18_
   
 Informations collectées sur les sites de : `Wuhan University` `Huazhong University of Science and Technology` `Yangtze University` `Wuhan Institute of Technology`<br/>  
   
-| 🇫🇷 Article(s) mentionnant la France ?  |
+| 🇫🇷 Article(s) mentionnant la France ?  |  
+| ----------- |
 |[我校生物科学中法合作办学项目一周年纪念仪式举行](http://news.hust.edu.cn/info/1002/44299.htm)   ※ [我校生物科学中法合作办学项目一周年纪念仪式举行](info/1002/44299.htm)  |
   
   
