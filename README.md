@@ -1,340 +1,308 @@
 # Dernières actualités scientifiques  
 _Province du Hubei_<br/>
-_Mis-à-jour : 2022-04-27_  
+_Mis-à-jour : 2022-04-29_  
   
-Informations collectées sur les sites de : `Huazhong University of Science and Technology` `Wuhan University` `Wuhan Textile University` `Wuhan Institute of Technology` `Yangtze University` `Zhongnan University of Economics and Law` `China Three Gorges University` `South-Central Minzu University` `Hubei University` `China University of Geosciences` `Central China Normal University`<br/>  
+Informations collectées sur les sites de : `Huazhong University of Science and Technology` `Wuhan University` `Wuhan Institute of Technology` `Wuhan Textile University` `Yangtze University` `Zhongnan University of Economics and Law` `China Three Gorges University` `South-Central Minzu University` `Hubei University` `China University of Geosciences` `Central China Normal University`<br/>  
   
 | 🇫🇷 Article(s) mentionnant la France ?  |  
 | ----------- |  
 |_Non, aucune mention pour le moment_  |
   
   
-[校领导深入基建工地调研指导](http://news.hust.edu.cn/info/1002/44525.htm)  
-School leaders penetrate into the infrastructure site research and guidance  
-> 新闻网讯 4月26日上午，校党委书记李元元、副校长湛毅青、副校长梁茜深入基建工地调研指导。 (...)  
-  
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-27  
-  * * *  
-[刘天罡课题组实现丝状真菌萜类产物的高效发现](http://news.whu.edu.cn/info/1015/67025.htm)  
-Liu Tianyu's research team realizes the efficient discovery of silk -shaped fungal pupa products  
-> 新闻网讯（通讯员药苑）4月26日，Nature（《自然》）子刊Nature Catalysis（《自然·催化》，影响因子IF=41.8）以研究论文（Article）形式，在线发表药学院邓子新院士团队刘 (...)  
-  
-📍 **Wuhan University** - 🗓️  Publié le 2022-04-27  
-  * * *  
-[土木工程与建筑学院“忆建团百年峥嵘，诵工大五十载风华”朗诵配音大赛举行](http://news.wit.edu.cn/info/1043/48762.htm)  
-The School of Civil Engineering and Architecture "Memory Construction Group Centennials, Fifty Cold Winds of the Workers' University" recitation and dubbing contest was held  
-> 本网讯（通讯员 张中强）为迎接建团一百周年，庆祝建校五十周年，4月24日晚，土木工程与建筑学院“忆建团百年峥嵘， 诵工大五十载风华”朗诵配音大赛在学校武昌校区科教大楼6楼报告厅成功举办。本次活动内容共 (...)  
-  
-📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-27  
-  * * *  
-[我校第二届高层次国际化人才实验班开班](https://www.scuec.edu.cn/xww/info/1004/9573.htm)  
-The opening class of the second high -level international talent experiment in our school  
+[三峡大学师生全国大学生评论大赛中获奖](https://syw.ctgu.edu.cn/info/1041/43588.htm)  
+Woning in the National College Student Review Contest of the Three Gorges University of Three Gorges University  
 > nan (...)  
   
-📍 **South-Central Minzu University** - 🗓️  Publié le 2022-04-27  
+📍 **China Three Gorges University** - 🗓️  Publié le 2022-04-29  
   * * *  
-[我校缪向水教授当选2021荆楚楷模年度人物](http://news.hust.edu.cn/info/1002/44533.htm)  
-Professor Miao Xiang Shui was elected 2021 Jingchu model year figure  
-> 新闻网讯 （通讯员 刘田昕 记者 苏明华）4月26日，湖北省委宣传部主办的“光耀新时代 共同向未来”2021荆楚楷模年度人物发布仪式举行。我校集成电路学院院长缪向水教授作为2021荆楚楷模年度人物第一 (...)  
+[我校卓越工程师培养研讨会召开](http://news.hust.edu.cn/info/1002/44553.htm)  
+The training seminar on our school's excellent engineer was held  
+> 新闻网讯（通讯员 黎丽）4月28日，我校召开卓越工程师培养研讨会。校长尤政，校党委副书记马建辉，副校长许晓东、张新亮参加会议。研讨会上，马建辉作主题报告，机械学院、电气学院、光电信息学院、材料学院、土 (...)  
   
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-27  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-29  
   * * *  
-[法学院教授文杰获最高人民检察院通报表扬](http://news.ccnu.edu.cn/info/1004/38294.htm)  
-Professor Wen Jie of Law School was notified and praised by the Supreme People's Procuratorate  
-> 华大在线讯（通讯员 万枞）近日，最高人民检察院发布第二期“民事行政检察专家咨询网”民事咨询优秀专家评选结果，对参与检察机关民事案件专家咨询工作表现突出的全国80名学者和律师予以通报表扬。我校法学院文杰 (...)  
+[【我为群众办实事】“珞珈直通车”平台启动](http://news.whu.edu.cn/info/1002/67040.htm)  
+[I do practical things for the masses] The "Luojia Direct Train" platform was launched  
+>  新闻网讯（记者相茹 实习生吴一诺）4月28日上午，武汉大学作风建设推进会暨“珞珈直通车”平台启动仪式举行。“珞珈直通车”平台旨在进一步有效解决师生员工在校园内学习、工作和生活中遇到的问题和困难，倾听 (...)  
   
-📍 **Central China Normal University** - 🗓️  Publié le 2022-04-27  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-29  
   * * *  
-[省卫健委调研我校医学拔尖人才工作](http://news.yangtzeu.edu.cn/info/1003/30597.htm)  
-The Provincial Health and Health Commission investigates the work of our school's top -tipped talents  
-> 新闻网讯（通讯员 赵静）4月25日下午，湖北省卫生健康委员会人事处二级调研员徐强勇、人才中心崔小雅，武汉大学人民医院张振涛一行3人到医学部调研我校医学拔尖人才培养工作。副校长、医学部部长毛精华，人事处 (...)  
+[校党委第八轮巡视11个巡视组全部进驻](http://news.whu.edu.cn/info/1002/67042.htm)  
+The eighth round of the school party committee inspected 11 inspection teams all settled in  
+> 新闻网讯（通讯员施路）4月21日至28日，根据学校党委统一部署，中共武汉大学第九届委员会第八轮巡视11个巡视组已完成对校纪委机关、监察部，研究生院，财务部，审计处，历史学院党委，马克思主义学院党委，法 (...)  
   
-📍 **Yangtze University** - 🗓️  Publié le 2022-04-27  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-29  
   * * *  
-[华中大中国航天三江集团共建未来智能创新联合研究院](http://news.hust.edu.cn/info/1002/44530.htm)  
-China Central China Aerospace Sanjiang Group jointly builds Future Intelligent Innovation Joint Research Institute  
-> 新闻网讯（ 通讯员 李海燕 记者 刘雪茹）为创新校企合作文化，不断探索实践校企合作新机制，促进双方科技创新体系深度融合。4月26日，华中科技大学—中国航天三江集团未来智能创新联合研究院签约授牌仪式在梧 (...)  
+[洪莉教授荣膺2022年湖北五一劳动奖章](http://news.whu.edu.cn/info/1002/67045.htm)  
+Professor Hong Li was awarded the May 1 Labor Medal of Hubei in 2022  
+> 新闻网讯（通讯员任艺萱）4月28日下午，2022年湖北省庆祝“五一”国际劳动节座谈会在洪山礼堂召开，会上宣读了《关于表彰2022年湖北五一劳动奖和湖北省工人先锋号的决定》。武汉大学人民医院（湖北省人民 (...)  
   
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-27  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-29  
   * * *  
-[【70周年校庆·校史上的今天】4月27日](http://news.hust.edu.cn/info/1002/44523.htm)  
-[70th anniversary school celebration · school history today] April 27th  
+[编印自助手册 关爱师生心理健康](https://syw.ctgu.edu.cn/info/1041/43592.htm)  
+Editing the psychological health of teachers and students  
 > nan (...)  
   
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-27  
+📍 **China Three Gorges University** - 🗓️  Publié le 2022-04-29  
   * * *  
-[国际学院举办2020级境外留学生奖学金答辩会](http://news.wit.edu.cn/info/1043/48763.htm)  
-The International College hosts a 2020 overseas student scholarship defense meeting  
-> 本网讯（通讯员 王黎）为激励境外留学生勤奋学习、努力进取，表彰优秀来华留学生，树立积极向上的良好来华留学氛围，提升高层次学历留学生规模和质量。4月26日上午，国际学院线上举行了2021-2022学年武 (...)  
+[【思政网评】打造思政“金课”需多方合力](https://syw.ctgu.edu.cn/info/1041/43594.htm)  
+[Simpling Network Review] Multi -party joint efforts to create "golden lessons" of ideological politics and politics  
+> nan (...)  
   
-📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-27  
+📍 **China Three Gorges University** - 🗓️  Publié le 2022-04-29  
   * * *  
-[【常态化疫情防控】疫情防控期间学校教职工怎样做？教育部发布指引](https://news.wtu.edu.cn/info/1002/31403.htm)  
-[Normal epidemic prevention and control] What do school staff do during the prevention and control of the epidemic? The Ministry of Education issued guidelines  
-> 为确保新冠肺炎疫情防控期间师生健康、校园安全和教学秩序，近日，教育部印发了《学校教职员工疫情防控期间行为指引（试行）》，对学校不同岗位教职员工分类提出明确要求。跟教育小微一起来看—— 
- 学校教职员工 (...)  
+[国家应急语言服务团在京成立 我校为首批联合发起单位](http://news.ccnu.edu.cn/info/1003/38302.htm)  
+The National Emergency Language Service Group established our school in Beijing as the first batch of joint initiative  
+> 华大在线讯（通讯员 朱芸）4月28日，由29家高校、企业、协会组织等联合发起的国家应急语言服务团在京成立。教育部党组成员、副部长，国家语委主任田学军出席会议并讲话。会议通过线上和线下相结合的方式进行， (...)  
   
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-27  
+📍 **Central China Normal University** - 🗓️  Publié le 2022-04-29  
   * * *  
-[学校召开2022年武装工作暨退伍学生座谈会](https://news.wtu.edu.cn/info/1002/31404.htm)  
-The school convened a symposium on armed work and veterans in 2022  
-> 为做好我校征兵入伍和退伍学生管理服务工作，4月26日下午，学校在阳光校区行政楼115会议室召开2022年武装工作暨退伍学生座谈会，校党委副书记、副校长罗锦银出席会议。学工部、团委、保卫处主要负责人，部 (...)  
+[Wiley出版付磊/曾梦琪著作《液态金属：性质、机理和应用》](http://news.whu.edu.cn/info/1015/67047.htm)  
+Wiley Publishing Fu Lei/Zeng Mengqi's book "Liquid Metal: Nature, Mechanism and Application"  
+> 新闻网讯（通讯员化苑）化学与分子科学学院付磊教授和曾梦琪副教授撰写的英文学术著作Liquid Metals: Properties,Mechanisms and Applications（《液态金属： (...)  
   
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-27  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-29  
   * * *  
-[【青春力量】2021年度大学生榜样人物候选人风采展（五）](https://news.wtu.edu.cn/info/1002/31405.htm)  
-[Youth Power] 2021 The candidate candidate for the role model of college students (5)  
+[化工与制药学院师生党支部开展4月“支部主题党日”系列教育活动](http://news.wit.edu.cn/info/1043/48803.htm)  
+The Party Branch of the School of Chemical and Pharmaceuticals launched a series of educational activities for the "Branch theme Party Day" in April  
+> 本网讯（通讯员 沈霁月）为深入学习贯彻习近平总书记系列重要讲话精神，进一步落实学校关于安全稳定工作的相关会议精神，不断增强基层党组织的凝聚力、战斗力、创造力，根据校党委组织部相关要求，化工与制药学院各 (...)  
+  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-29  
+  * * *  
+[第八届“互联网+”大学生创新创业大赛参赛动员会召开](http://news.hust.edu.cn/info/1002/44555.htm)  
+The eighth "Internet+" college student innovation and entrepreneurship competition contest will be held  
+> 新闻网讯（通讯员 王梓桐 刘佳朗 郭菁）4月26日，我校召开第八届“广东工研院杯”创新创业大赛暨中国国际“互联网+”大学生创新创业大赛参赛动员会。校党委副书记马建辉参加会议并讲话。本科生院副院长刘红军 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-29  
+  * * *  
+[校党委加强医学院班子建设  强调汇聚发展合力共谱一流新篇章](http://news.hust.edu.cn/info/1002/44554.htm)  
+The construction of the school's party committee strengthened the construction of the medical school.  
+> 新闻网讯（记者 粟晓丽）近日，为深入贯彻落实习近平总书记关于人民生命健康和医疗卫生事业发展的重要论述，加快医学教育创新发展，充分发挥学术带头人作用，增强学科组织力、创新力、竞争力，校党委进一步加强医学 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-29  
+  * * *  
+[“海外人文社会科学研究前沿追踪计划”成果丰硕](http://news.whu.edu.cn/info/1015/67046.htm)  
+"Overseas Humanities and Social Science Research Frontier Tracking Plan" results  
+> 新闻网讯（通讯员吴楚云、王徵）4月28日，“海外人文社会科学研究前沿追踪计划十五年回顾与前瞻”座谈会举行，项目成果网络首发。校党委书记韩进向《海外人文社会科学年度报告2020》十位作者代表赠送了钤印的 (...)  
+  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-29  
+  * * *  
+[【70周年校庆·校史上的今天】4月29日](http://news.hust.edu.cn/info/1002/44552.htm)  
+[70th anniversary school celebration · school history today] April 29th  
+> nan (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-29  
+  * * *  
+[微软亚洲研究院（MSRA）副院长刘铁岩受聘我校兼职教授并做客计算机学院“Time·前沿”论坛](http://news.hust.edu.cn/info/1003/44561.htm)  
+Liu Tieyan, deputy dean of the Microsoft Institute (MSRA), was hired by part -time professor of our school and a guest of "Time · Frontier" forum  
+> 新闻网讯（通讯员 何琨）4月28日，微软亚洲研究院（MSRA）副院长、IEEE Fellow、ACM Fellow刘铁岩博士受聘我校兼职教授，受聘仪式线上举行，计算机学院冯丹院长向刘铁岩博士颁发了聘书 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-29  
+  * * *  
+[袁水桥教授课题组揭示睾丸生殖细胞-支持细胞交互作用的表观遗传调控新机制](http://news.hust.edu.cn/info/1003/44558.htm)  
+Professor Yuan Shuiqiao Research Team revealed testicular germ cells-a new mechanism for epigenetics that support cell interaction effects  
+> 新闻网讯 4月19日，华中科技大学同济医学院生殖健康研究所袁水桥课题组在Cell Death & Disease（中科院升级版1区）上在线发表题为：UHRF1 establishes crosstal (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-29  
+  * * *  
+[我校2022年知识产权日系列活动举行](http://news.hust.edu.cn/info/1003/44556.htm)  
+The series of intellectual property days in our school 2022 was held  
+> 新闻网讯（通讯员 李智 付秀峰 冼可霖）4月26日是我国第22个世界知识产权日。今年产权日宣传周活动的主题是“全面开启知识产权强国建设新征程”。为全面加强知识产权保护,积极宣传知识产权保护内容，科发院 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-29  
+  * * *  
+[我校召开学生就业工作专题推进会](http://voice.cug.edu.cn/info/1032/19833.htm)  
+Our school held a special promotion meeting for student employment work  
+> 发表时间：2022-04-28作者：网站编辑：庞伟红来源：地大新闻网点击：次 地大新闻网讯（通讯员 刘志兴 郭玉凤 彭鑫）4月27日，我校线上召开学生就业工作专题推进会。校党委书记黄晓玫，副校长赖旭龙 (...)  
+  
+📍 **China University of Geosciences** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[【青春力量】2021年度大学生榜样人物候选人风采展（六）](https://news.wtu.edu.cn/info/1002/31416.htm)  
+[Youth Power] 2021 college student example candidate candidate exhibition (6)  
 > 根据《关于评选“青春力量 感动纺大”2021年度大学生榜样人物的通知》要求，经学院提名、校团委组织初选，拟定纺织学院郭世贸等20名（个）同学（集体）为2021年度大学生榜样人物候选人。校园网刊发【青春 (...)  
   
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-27  
+📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-28  
   * * *  
-[我校金宜鸿教授导演作品《共饮一江水》定档上线](https://news.wtu.edu.cn/info/1002/31409.htm)  
-Professor Jin Yihong, the director's work "Drinking One River Water", will be launched on the line  
-> 4月26日，我校传媒学院金宜鸿教授和李若怯、相国强联合导演的湖北省重点网络剧《共饮一江水》在腾讯视频上线播出，这是自疫情发生以来湖北本土首部关于抗疫的网络剧。金宜鸿教授不仅担任导演职务，还是该剧主题曲 (...)  
+[我校牵头承担的一项国家自然科学基金重大项目启动](http://news.whu.edu.cn/info/1015/67035.htm)  
+A major project of the National Natural Science Foundation of Natural Sciences in charge of our school's leading undertaking  
+> 新闻网讯（通讯员畅鑫）4月24日，国家自然科学基金重大项目“全球精细海洋重力场与海底地形建模理论及其应用”项目启动会召开。该项目由武汉大学牵头承担，中国科学院精密测量科学与技术创新研究院、山东大学、同 (...)  
   
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-27  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-28  
   * * *  
-[校外专家学者为我校自主科研项目云上“把脉”](http://news.whu.edu.cn/info/1015/67015.htm)  
-Experts and scholars outside the school are the "pulse" on the cloud on the independent scientific research project of our school  
-> 新闻网讯（通讯员闫丽丽、乔进、李振）4月21日，2022年武汉大学自然科学类自主科研重点培育项目评审会在线举行。来自清华大学、北京大学、复旦大学、中山大学、中国科学技术大学等高校的35位知名专家学者汇 (...)  
+[中国第38次南极科考凯旋，我校四名队员回国](http://news.whu.edu.cn/info/1015/67034.htm)  
+China ’s 38th Antarctic Science Examination Triumph, four members of our school returned to China  
+> 新闻网讯（通讯员凌家俊、徐永芳）4月26日,“雪龙号”破冰船返回国内，标志着中国第38次南极科学考察圆满完成。武汉大学4名队员（生命科学学院彭方；中国南极测绘研究中心张汝诚、陈帅均、麻源源）顺利完成南 (...)  
   
-📍 **Wuhan University** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-28  
   * * *  
-[ 学校开展2022年毕业生就业创业政策宣传月活动](https://www.scuec.edu.cn/xww/info/1002/9566.htm)  
-The school carried out 2022 graduate employment and entrepreneurial policy promotion month activity  
-> 当前位置： 
-        网站首页
-         > 
-        民大快讯
-         > 
-        正文
- 为贯彻落实党中央、国务院关于就业创业工作决策部署， (...)  
+[夏军院士获国际水资源与环境研究终身成就奖](http://news.whu.edu.cn/info/1015/67032.htm)  
+Academician Xia Jun won the lifelong achievement award of international water resources and environmental research  
+>   新闻网讯（通讯员骆文广）4月25日至27日，第9届国际水资源与环境大会（ICWRER 2022）在美国佛罗里达大学以线上线下方式举行。大会奖励委员会主席Kieth Hiple教授宣布，加拿大工程院 (...)  
   
-📍 **South-Central Minzu University** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-28  
   * * *  
-[【70周年校庆·校史上的今天】4月26日](http://news.hust.edu.cn/info/1002/44506.htm)  
-[70th Anniversary Celebration · Today] April 26  
+[第二届管理学院学科高端论坛学术交流活动拉开序幕](http://news.hust.edu.cn/info/1003/44545.htm)  
+The academic exchange activity of high -end forums of the 2nd School of Management started  
+> 新闻网讯（通讯员 梁媛媛 郑名扬）4月22日下午，为期3个月的第二届管理学院学科高端论坛学术交流活动在梧桐语问学中心问道报告厅拉开序幕。我校副校长张新亮，管理学院党委书记胡艳华、院长杨治，副院长王海军 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[外国语学院2021级新生树木认养挂牌活动举行](http://news.hust.edu.cn/info/1003/44548.htm)  
+The adoption activities of the 2021 freshman trees at the School of Foreign Languages were held  
+> 新闻网讯（通讯员 蒋铃航 李嘉琦)4月21日，外国语学院2021级新生树木认养挂牌活动在友谊园举行。 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[社会学院召开学生培养专题党委会](http://news.hust.edu.cn/info/1003/44549.htm)  
+The School of Social College held a special party committee of student training  
+> 新闻网讯（通讯员 岐尚鲜）4月25日，社会学院召开学生培养专题党委会，听取团委工作要点、学生社团工作、宣传意识形态阵地管理以及学生就业工作相关报告。会议由院党委书记肖莉主持。 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[校友周心怀任中国海洋石油集团有限公司副总经理、党组成员](http://news.yangtzeu.edu.cn/info/1003/30607.htm)  
+Alumni Zhou Xinhuai is appointed Deputy General Manager of China Ocean Petroleum Group Co., Ltd.  
+> 新闻网讯 据中国海油集团官网信息，校友周心怀履新中国海洋石油集团有限公司副总经理、党组成员。 (...)  
+  
+📍 **Yangtze University** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[吴理民同学荣获2022年“荆州青年五四奖章”](http://news.yangtzeu.edu.cn/info/1003/30608.htm)  
+Wu Limin was awarded the "Jingzhou Youth May 4th Medal" in 2022  
+> 新闻网讯（通讯员 何儒权）近日，2022年“荆州青年五四奖章”获得者名单公布，城市建设学院研二学生吴理民名列其中。 (...)  
+  
+📍 **Yangtze University** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[中国科学院数理学部院士郭柏灵为师生作学术报告](https://syw.ctgu.edu.cn/info/1123/43576.htm)  
+Guo Bailing, an academician of the Ministry of Curse of the Chinese Academy of Sciences, made an academic report for teachers and students  
+>   本网讯（通讯员 汤婧）4月20日上午，北京应用物理与计算数学研究所郭柏灵院士为理学院师生作了一场题为《怪波与可积系统湍流》的学术报告。本次报告采取线上线下混合模式举行，数学系师生线下参加了报告会， (...)  
+  
+📍 **China Three Gorges University** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[学校召开“学科建设大讨论”工作推进会](http://www.hubu.edu.cn/info/1246/38114.htm)  
+The school holds the "Discussion Discussion" work promotion meeting  
+> 4月27日上午，学校在会议中心召开“学科建设大讨论”工作推进会，校党委常委章天金主持会议，学科建设与发展规划处、各学科性学院负责人出席会议。  章天金指出，自4月15日正式启动“学科建设大讨论”以来， (...)  
+  
+📍 **Hubei University** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[学校举办工会干部培训班](https://news.wtu.edu.cn/info/1002/31417.htm)  
+The school hosts a trade union cadre training course  
+> 为进一步深化工会干部教育培训，加强工会干部人才队伍建设，提高工会干部的理论素养和履职能力，推动工会工作迈上新台阶，校工会根据2022年工会工作要点，于4月26日下午在崇真楼国家重点实验室会议室举办工会 (...)  
+  
+📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[我校在2021年度全国高校思政工作优秀案例征集活动中获佳绩](http://news.hust.edu.cn/info/1003/44550.htm)  
+Our school achieved great achievements in the outstanding case collection activities of the national university's ideological and political work in 2021  
+> 新闻网讯（通讯员 靖咏安）近日，由教育部思想政治工作司指导，《高校辅导员》编辑部主办的2021年度“全国高校思想政治工作优秀案例征集活动”评审结果发布。我校共三篇案例获奖，其中能源学院辅导员孙伟主持的 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[法商师生热议习近平总书记考察中国人民大学重要讲话精神](http://news.wit.edu.cn/info/1043/48777.htm)  
+French business teachers and students have hotly discussed the spirit of General Secretary Kunping's inspection of the important speech of Renmin University of China  
+> 本网讯 在五四青年节即将到来之际，中共中央总书记、国家主席、中央军委主席习近平25日前往中国人民大学考察调研，寄语全国广大青年要牢记党的教诲，立志民族复兴，不负韶华，不负时代，不负人民，在青春的赛道上 (...)  
+  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[【70周年校庆·基层动态】继续教育学院专题学习校庆筹备工作](http://news.hust.edu.cn/info/1003/44551.htm)  
+[70th Anniversary Celebration · Grassroots Dynamics] Special Learning of the School of Continuing Education  
+> 新闻网讯（通讯员 谭冬冬）4月27日，继续教育学院（教育培训学院）组织开展院党委理论学习中心组（扩大）学习，邀请校庆工作办公室到学院作学校70年校庆工作专题报告。院长周前进主持学习会。 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[尤政调研指导第五轮校内巡视工作](http://news.hust.edu.cn/info/1002/44543.htm)  
+Youzheng research and guidance for the fifth round of school inspection work  
+> 新闻网讯 4月27日上午，校党委副书记、校长、巡视工作领导小组组长尤政到巡视组驻地调研指导第五轮校内巡视工作。校党委副书记、纪委书记、巡视工作领导小组副组长周建波参加调研。 (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[武汉未来科技城建设管理办公室吴家伟一行来校调研](http://news.wit.edu.cn/info/1039/48794.htm)  
+Wuhan Future Science and Technology City Construction Management Office Wu Jiawei and his party came to school for investigation  
 > nan (...)  
   
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
   * * *  
-[学校举办2022年第二期辅导员育人故事分享会](http://news.wit.edu.cn/info/1043/48752.htm)  
-The school holds the second phase of the second phase of the counselor's education story sharing meeting  
-> 本网讯（通讯员 李昊昱）4月20日下午，学校2022年第二期辅导员育人故事分享会在学生处108会议室举行。分享会由材料科学与工程学院辅导员李昊昱主持。 (...)  
+[青春心向党，奋进新征程|电气信息学院与法商学院联合开展“手拉手·共奋进”主题团日活动](http://news.wit.edu.cn/info/1039/48793.htm)  
+Youth to the party, forge a new journey | The School of Electrical Information and the School of France and Business jointly carried out the theme group day event  
+> 本网讯（通讯员 肖楚阳 章文杰）2022年是中国共产党第二十次全国代表大会召开之年，也是共青团成立100周年。为引导团员青年坚定跟党走，奋进新征程，4月24日下午，电气信息学院与法商学院在西北区2号楼 (...)  
   
-📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
   * * *  
-[省委统战部调研组来校调研](https://syw.ctgu.edu.cn/info/1041/43561.htm)  
-Provincial Party Committee Division Department Department of Research Group to school  
-> nan (...)  
+[第五届湖北省高校“与绿同行”微公益环保创意大赛校级答辩顺利举行](http://news.wit.edu.cn/info/1039/48792.htm)  
+The 5th Hubei Provincial University "Walking with Green" Micro Public Welfare Environmental Creative Competition School -level defense was successfully held  
+> 本网讯（通讯员 杨雅 杨荣佳）为贯彻落实习近平总书记有关生态环境保护的指导思想，进一步增强全校学生的生态文明意识，推动绿色生态发展，助力美丽中国建设，4月22日，第五届湖北省高校“与绿同行”微公益环保 (...)  
   
-📍 **China Three Gorges University** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
   * * *  
-[力擎抗疫责任重担 众志成城保稳保供](http://voice.cug.edu.cn/info/1032/19827.htm)  
-Liqing Responsibility Responsibilities Responsible for the responsibility of the city to maintain stability and confession  
-> 发表时间：2022-04-26作者：网站编辑：庞伟红来源：地大新闻网点击：次 地大新闻网讯（通讯员 江琼 柏松）近日，为坚决防止校外疫情进入校园，确保广大师生员工生命健康和校园安全稳定，后勤保障部高度 (...)  
+[湖北卫视报道我校师生“强国复兴有我”主题宣传教育歌咏活动](http://news.wit.edu.cn/info/1039/48790.htm)  
+Hubei Satellite TV reports the theme of our school's teachers and students "Powerful Country Revival and Me"  
+> 本网讯（通讯员 肖豪）为了进一步学习贯彻习近平总书记在中国人民大学考察时的重要讲话精神，用更加饱满的热情和更加昂扬的状态迎接党的二十大胜利召开，武汉工程大学青年师生用歌声表达“青春向党、不负人民”的铮 (...)  
   
-📍 **China University of Geosciences** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
   * * *  
-[中南财经政法大学积极服务知识产权强国战略](http://wellan.zuel.edu.cn//2022/0426/c1670a297026/page.htm)  
-Zhongnan University of Economics and Law actively serves intellectual property strategy  
+[校统战系统联合学习暨统战工作联席会议召开](http://news.wit.edu.cn/info/1039/48789.htm)  
+Joint Conference of Joint Learning and United Front Work Joint Meeting of the School War System was held  
+> 本网讯（通讯员 王敏）4月28日，学校在西北区三号楼409室召开统战系统联合学习暨统战工作联席会议。会议由党委统战部常务副部长卢宜青主持。 (...)  
+  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[【70周年校庆·校史上的今天】4月28日](http://news.hust.edu.cn/info/1002/44539.htm)  
+[70th Anniversary Celebration · School History today] April 28th  
+>  （本栏目由党委宣传部、档案馆合作推出，文字由吕玉娥、王涛、张思晗、粟晓丽、汪伟颋整理。） (...)  
+  
+📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[我校与曼彻斯特城市大学联合举办首届先进功能材料国际学术研讨会](http://news.wit.edu.cn/info/1039/48776.htm)  
+Our university and the City University of Manchester jointly organized the first international academic seminar for advanced functional materials  
+> 本网讯（通讯员 张雪姣）4月26日下午，为推动国际联合研究中心建设，我校与曼彻斯特城市大学联合举办首届先进功能材料国际学术研讨会。会议采取线上线下相结合方式召开，与英国曼彻斯特城市大学的专家教授通过视 (...)  
+  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
+  * * *  
+[我校4项课题获批2022年度省智库项目](http://wellan.zuel.edu.cn//2022/0428/c1670a297356/page.htm)  
+Our school's 4 topics were approved by the provincial think tank project in 2022  
 > 
-来源：新闻网发布时间：2022-04-26
+来源：科学研究部、社会科学研究院发布时间：2022-04-28
 		  字体：大中 小
- 新闻网讯（通讯员 李盛 徐剑飞）世界知识产权日，由世界知识产权组织于2001年4月26日设立，并决定从2001年起将每年的4月 (...)  
+ 新闻网讯（通讯员 张述怡）4月28日上午，湖北省委宣传部以视频会议形式召开2022年度智库工作推进会，发布 (...)  
   
-📍 **Zhongnan University of Economics and Law** - 🗓️  Publié le 2022-04-26  
+📍 **Zhongnan University of Economics and Law** - 🗓️  Publié le 2022-04-28  
   * * *  
-[习近平总书记在中国人民大学考察时的重要讲话精神在学校师生中引起热烈反响](https://www.scuec.edu.cn/xww/info/1002/9570.htm)  
-The important speech of General Secretary Xi Jinping during the inspection of Renmin University of China caused a warm response among the teachers and students of the school  
-> 当前位置： 
-        网站首页
-         > 
-        民大快讯
-         > 
-        正文
- 4月25日上午，习近平总书记来到中国人民大学考察调 (...)  
+[计算机科学与工程学院 人工智能学院召开2022届毕业生就业工作专题会议](http://news.wit.edu.cn/info/1043/48796.htm)  
+The School of Artificial Intelligence, School of Computer Science and Engineering, held a special meeting of employment work in 2022 graduates  
+> 本网讯（通讯员 石欣平）为进一步贯彻落实党中央“稳就业、保民生”决策部署，贯彻学校就业工作专题会会议精神，切实做好疫情防控常态化形势下的大学生就业工作，促进毕业生高质量就业。4月27日下午，计算机科学 (...)  
   
-📍 **South-Central Minzu University** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
   * * *  
-[学校召开中华民族共同体研究基地建设工作推进会](https://www.scuec.edu.cn/xww/info/1002/9567.htm)  
-The school holds the construction of the construction of the Chinese nation community research base  
-> 当前位置： 
-        网站首页
-         > 
-        民大快讯
-         > 
-        正文
- 4月25日上午，国家民委中华民族共同体研究基地主任 (...)  
+[副校长喻发全到体育部调研指导工作](http://news.wit.edu.cn/info/1039/48778.htm)  
+Vice President Yu Faquan went to the Ministry of Sports to investigate and guide the work  
+> 本网讯（通讯员 汪涵）4月26日上午，副校长喻发全到体育部调研指导工作，体育部全体领导班子成员参加了调研。 (...)  
   
-📍 **South-Central Minzu University** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-28  
   * * *  
-[生命学科人才培养模式改革虚拟教研室建设启动](http://news.hust.edu.cn/info/1003/44519.htm)  
-Life discipline talent training model Reform the construction of the virtual teaching and research room  
-> 新闻网讯 4月23日，教育部首批生命学科人才培养模式改革虚拟教研室建设启动会暨第一次工作研讨会在我校顺利召开，会议以“聚焦模式改革，培养创新人才”为主题，围绕虚拟教研室高质量平台建设、生命学科拔尖/卓 (...)  
+[关爱离退休教职工  有温度的服务“不停摆”](http://voice.cug.edu.cn/info/1032/19837.htm)  
+Caring for retired faculty and employees with temperature services "constantly set"  
+> 发表时间：2022-04-28作者：网站编辑：王俊芳来源：地大新闻网点击：次 地大新闻网讯(通讯员 叶青)近日，因学校周边疫情影响，校园疫情防控形势严峻，为第一时间阻断疫情向校内传播，确保广大师生员工 (...)  
   
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-26  
+📍 **China University of Geosciences** - 🗓️  Publié le 2022-04-28  
   * * *  
-[校党委理论学习中心组召开专题学习会](http://news.hust.edu.cn/info/1002/44509.htm)  
-The school party committee theoretical learning center group held a special study meeting  
-> 新闻网讯（记者 崔美娇）4月25日下午，校党委以第七个全民国家安全教育日为契机，组织召开党委理论学习中心组专题学习会，认真学习习近平总书记关于总体国家安全观的重要论述，重点学习党中央关于碳达峰、碳中和 (...)  
+[九届四次教代会暨十八届四次工代会工作总结会召开](https://voice.cug.edu.cn/info/1002/19835.htm)  
+The Fourth Division of the Ninth Session and the Working Conference of the Fourth Working Conference of the Eighteenth Eighteenth Eighteenth Eighteenth Eighteenth Eighteenth Eighth  
+> 发表时间：2022-04-28作者：网站编辑：庞伟红来源：地大新闻网点击：次   地大新闻网讯（通讯员 李梦琳 摄影 周斐霏）4月22日，九届四次教代会暨十八届四次工代会工作总结会召开。校党委副书记、 (...)  
   
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-26  
+📍 **China University of Geosciences** - 🗓️  Publié le 2022-04-28  
   * * *  
-[我校师生热议习近平在中国人民大学考察时的重要讲话](http://news.hust.edu.cn/info/1002/44515.htm)  
-The important speech of teachers and students in our school are close to Ji Jinping at the People's University of China.  
-> 新闻网讯 在五四青年节即将到来之际，中共中央总书记、国家主席、中央军委主席习近平4月25日上午来到中国人民大学考察调研。习近平代表党中央，向全国各族青年致以节日的祝贺，向中国人民大学全体师生员工、向全 (...)  
+[我校3项案例入选教育部学位中心2021年主题案例立项](http://news.whu.edu.cn/info/1002/67031.htm)  
+The three cases of our school were selected as the theme case of the theme case of the Ministry of Education.  
+> 新闻网讯（通讯员邹玲）近日，教育部学位与研究生教育发展中心公布了2021年主题案例征集立项结果，我校3个案例入选。 我校入选案例分别为：围绕“乡村振兴”主题，城市设计学院李志刚教授的“面向乡村振兴的土 (...)  
   
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-28  
   * * *  
-[闵杰课题组有机太阳能电池高性能三元体系构建研究取得新进展](http://news.whu.edu.cn/info/1015/67017.htm)  
-New progress in the construction of high-performance three-dimensional solar cells in the organic solar battery  
-> 新闻网讯（通讯员高妍）近日，高等研究院闵杰研究员课题组在有机太阳能电池高性能三元体系构建方面取得新进展，最新研究成果发表在国际顶级期刊Advanced Materials上，论文题为“Single-J (...)  
+[学校举办学院行政副院长培训班](http://news.whu.edu.cn/info/1002/67033.htm)  
+The school holds the training course of the deputy dean of the college  
+> 新闻网讯（通讯员高朝虎）近日，学校举办学院行政副院长培训班，来自全校各学院、科研机构的53名行政副院长、专职行政副职参加培训，校党委副书记赵雪梅出席培训班大会交流活动。  培训期间，法学院廖奕教授以“ (...)  
   
-📍 **Wuhan University** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-28  
   * * *  
-[电信学院成功承办第七届计算机与通信系统国际会议](http://news.hust.edu.cn/info/1003/44521.htm)  
-The Telecommunications College successfully hosted the 7th International Conference on Computer and Communication Systems  
-> 新闻网讯（通讯员 张嘉妮）4月22日至25日，由电气与电子工程师协会（IEEE）主办、华中科技大学电子信息与通信学院承办的2022年第七届计算机与通信系统国际会议（ICCCS 2022）成功举办。本届 (...)  
+[学校组织专家学者深入学习《关于推进新时代古籍工作的意见》](http://news.whu.edu.cn/info/1002/67036.htm)  
+School organization experts and scholars have thoroughly studied the "Opinions on Promoting the Work of Ancient Books in the New Era"  
+> 新闻网讯（通讯员肖鸿哉、王爽）中共中央办公厅、国务院办公厅日前联合印发了《关于推进新时代古籍工作的意见》（以下简称《意见》）。4月26日上午，全国高校黄大年式教学团队武汉大学古籍整理研究所冷门绝学传承 (...)  
   
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[图书馆与信息管理学院签署合作备忘录，深化合作](http://news.whu.edu.cn/info/1002/67013.htm)  
-The library and the School of Information Management signed a memorandum of cooperation to deepen cooperation  
-> 新闻网讯（通讯员杨文雯、杨婷）4月21日，图书馆与信息管理学院深化合作备忘录签署暨陈传夫教授学术报告会举行。副校长吴平，人文社科资深教授、大数据研究院院长马费成，人文社科资深教授、研究生院院长陈传夫出 (...)  
-  
-📍 **Wuhan University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[【科学前沿】材料学院翟天佑刘友文团队在二维电催化界面设计取得系列进展](http://news.hust.edu.cn/info/1002/44520.htm)  
-[Scientific Frontier] Materials College, Tianyou, Liu Youwen, a series of progress in two-dimensional electric catalytic interface design  
-> 新闻网讯 近期《自然通讯》（Nature Communications）、《先进材料》（AdvancedMaterials）和《德国应用化学》（Angewandte Chemie Internatio (...)  
-  
-📍 **Huazhong University of Science and Technology** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[我校五部著作入选《人民文库》第二辑](http://news.whu.edu.cn/info/1015/67021.htm)  
-The five works of our school were selected into the second series of the People's Law Treasure  
-> 新闻网讯（通讯员邓莉萍）武汉大学哲学学院教授陶德麟、汪信砚和历史学院教授唐长孺等人的五部著作入选人民出版社《人民文库》第二辑。它们分别是：陶德麟和汪信砚主编的《马克思主义哲学的当代论域》、汪信砚撰著的 (...)  
-  
-📍 **Wuhan University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[《当代中国思想》“萧萐父专辑”出版](http://news.whu.edu.cn/info/1015/67022.htm)  
-"Contemporary Chinese Thought" "Xiao Nu's Father's Album" was published  
-> 新闻网讯（通讯员谢远笋）武汉大学哲学学院郭齐勇教授与德国知名汉学家谢林德（Dennis Schilling）教授合编的《当代中国思想》专辑“中国思想的历史动力：萧萐父哲学”，日前已出版发行。《当代中国 (...)  
-  
-📍 **Wuhan University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[2人在湖北省辅导员素质能力大赛暨育人故事分享会中获奖](http://voice.cug.edu.cn/info/1032/19828.htm)  
-2 people win award in Hubei Counselors Quality Competition and Education Story Sharing Club  
-> 发表时间：2022-04-26作者：网站编辑：王俊芳来源：地大新闻网点击：次 地大新闻网讯（通讯员 姚琳 排孜丽亚 熊程 ）4月22日，第十届湖北省高校辅导员素质能力大赛暨2022年湖北省高校辅导员育 (...)  
-  
-📍 **China University of Geosciences** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[我校参加教育部直属高校服务乡村振兴创新试验培育项目工作推进会](http://news.whu.edu.cn/info/1002/67014.htm)  
-Our school participated in the Ministry of Education to serve the country's service rural resolution and innovation test and cultivation project work promotion  
-> 新闻网讯（通讯员陈浩东、陈佩）4月22日，教育部直属高校服务乡村振兴创新试验培育项目工作推进会以视频方式召开，武汉大学等26所高校参加项目汇报。 信息管理学院副院长吴江代表学校汇报了《多学科赋能乡村文 (...)  
-  
-📍 **Wuhan University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[湖北省纪委监委网站报道我校纪委日常监督工作：用活谈心谈话 破解“关键少数”监督难题](http://news.ccnu.edu.cn/info/1003/38284.htm)  
-The website of the Hubei Provincial Commission for Discipline Inspection Commission reported the daily supervision of our school discipline committee: to talk about the "key minority" supervision problem  
-> 编者按：4月24日，湖北省纪委监委网站首页“廉政要闻”栏目以《华中师范大学纪委：用活谈心谈话 破解“关键少数”监督难题》为题，报道我校纪委日常监督工作。现全文转载如下： 华中师范大学纪委：用活谈心谈话 (...)  
-  
-📍 **Central China Normal University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[“献礼二十大，经典我传承”——学校第十三届“工大读书节”开幕](http://news.wit.edu.cn/info/1039/48751.htm)  
-"The 20th National Congress of Gifts, Classic I Inheritance" -The 13th "University of Technology Reading Festival" opens  
-> 本网讯（通讯员 杨茜 金吉晖）4月23日“世界读书日”，学校举办了以“献礼二十大，经典我传承”为主题第十三届“工大读书节”开幕式，正式启动读书月相关系列活动。本届读书节活动以第27个“世界读书日”为契 (...)  
-  
-📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[学校举办第十四届研究生知行论坛·理工（一）分论坛](https://news.wtu.edu.cn/info/1003/31374.htm)  
-The school holds the 14th Graduate Student Inspection Forum · Polytechnic (1) sub -forum  
-> nan (...)  
-  
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[东西湖区委书记彭涛一行来校洽谈校地合作](http://news.ccnu.edu.cn/info/1003/38292.htm)  
-At the East and West Lake District Party Secretary, Peng Tao came to the school to discuss the school's cooperation  
-> 华大在线讯（见习记者 张严溢）4月25日，武汉市东西湖区委书记彭涛、武汉市教育局党委书记李超等一行来访我校，与校党委书记赵凌云、副校长任友洲在行政楼一楼会议室，就校地合作等相关事宜进行座谈。任友洲主持 (...)  
-  
-📍 **Central China Normal University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[发挥科技优势 推进“宜荆荆恩”城市群产业发展](https://syw.ctgu.edu.cn/info/1123/43565.htm)  
-Give full play to the advantages of scientific and technological to promote the development of the "Yi Jingjing" urban group industry  
-> 本网讯（通讯员 马国贞 雷勇）近日，武陵中药产业研究院在宜昌市五峰土家族自治县揭牌成立。这是学校发挥科技优势，推进“宜荆荆恩”城市群产业发展的重要举措之一。 湖北五峰地处武陵山脉，享有“天然药库”的美 (...)  
-  
-📍 **China Three Gorges University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[武大师生热议习近平总书记在中国人民大学考察时的重要讲话](http://news.whu.edu.cn/info/1002/67023.htm)  
-The important speech when the Master Masters and the General Secretary of Ji Jinping is investigation of the People's University in China.  
-> 文字整理：李鹏、秦书凝 在五四青年节即将到来之际，中共中央总书记、国家主席、中央军委主席习近平4月25日上午来到中国人民大学考察调研。习近平代表党中央，向全国各族青年致以节日的祝贺，向中国人民大学全体 (...)  
-  
-📍 **Wuhan University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[校领导推进巡视整改并调研招生就业工作](https://news.wtu.edu.cn/info/1002/31395.htm)  
-School leaders promote inspection and rectification and investigate enrollment employment work  
-> 4月25日下午，校党委副书记、副校长罗锦银在校办工作人员陪同下，到招就处推进巡视整改并调研招生就业工作，对新任职干部提出要求。 
- 罗锦银对前期工作取得的进展表示肯定，并对下一阶段的工作提出了要求。他 (...)  
-  
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[计算机与人工智能学院成功举办第二届崇真青年学者学术沙龙](https://news.wtu.edu.cn/info/1003/31398.htm)  
-The School of Computer and Artificial Intelligence successfully held the second Chongzhen Young Scholars Academic Salon  
-> nan (...)  
-  
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[师生热议习近平总书记在中国人民大学考察时的重要讲话](https://news.wtu.edu.cn/info/1002/31397.htm)  
-The important speech of General Secretary of Teaching from Nurtly, General Secretary of China, Investigation of Renmin University of China  
-> 在五四青年节即将到来之际，中共中央总书记、国家主席、中央军委主席习近平25日上午到中国人民大学考察调研并发表重要讲话。他希望全国广大青年牢记党的教诲，立志民族复兴，不负韶华，不负时代，不负人民，在青春 (...)  
-  
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[副校长喻发全督查兴发矿业学院、资源与安全工程学院疫情防控工作](http://news.wit.edu.cn/info/1039/48753.htm)  
-Vice President Yufa Quan Qixing Fan Mining Institute, Epidemic Prevention and Control of Resources and Safety Engineering  
-> 本网讯（通讯员 郑浩然）4月25日下午，副校长喻发全到兴发矿业学院、资源与安全工程学院督导、检查疫情防控工作。 (...)  
-  
-📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[学校专题研究疫情防控工作](https://news.wtu.edu.cn/info/1002/31401.htm)  
-School specialty research epidemic prevention and control work  
-> 4月25日上午，学校疫情防控指挥部在阳光校区115会议室召开扩大会议。校党委副书记、副校长罗锦银，校党委常委、副校长冯军出席会议并讲话。学校疫情防控指挥部各工作组成员单位负责人参加会议。会议由学校办公 (...)  
-  
-📍 **Wuhan Textile University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[我校承办全国大学生市场调查与分析大赛湖北赛区选拔赛](http://www.hubu.edu.cn/info/1246/38094.htm)  
-Our university hosted the National College Student Market Survey and Analysis Competition Hubei Division Tournament  
-> 4月23日，由中国商业统计学会主办、湖北大学承办的“正大杯”第十二届全国大学生市场调查与分析大赛湖北赛区本科生选拔赛开幕，全省40所高校300支队伍参赛。湖北大学党委常委、副校长王世敏，国家统计局湖北 (...)  
-  
-📍 **Hubei University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[湖北大学教育发展基金会获评全省5A级社会组织](http://www.hubu.edu.cn/info/1246/38093.htm)  
-Hubei University Education Development Foundation was rated by 5A -level social organizations in the province  
-> 近日，湖北省民政厅发布《2021年度全省性社会组织评估等级公告》，湖北大学教育发展基金会获评最高等级“5A级社会组织”。此次全省仅4家高校基金会获得5A等级。  省民政厅专家组来校实地评估 湖北大学教 (...)  
-  
-📍 **Hubei University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[我校民盟盟员代表出席中国民主同盟湖北省第十四次代表大会](http://news.wit.edu.cn/info/1039/48748.htm)  
-Our University of China is attended to attend the 14th Congress of China 's Democratic Alliance Hubei Province.  
-> 本网讯（通讯员 张成军）4月24日至25日，中国民主同盟湖北省第十四次代表大会在武汉东湖宾馆举行。全国人大常委会委员、民盟中央副主席龙庄伟代表民盟中央以视频形式讲话。中共湖北省委常委、省纪委书记、省监 (...)  
-  
-📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[我校九三学社委员会主委陈明芳获评省级“模范社员”](http://news.wit.edu.cn/info/1039/48747.htm)  
-Chen Mingfang, the head of the Jiu San Social Committee of our school, was awarded provincial "model sector"  
-> 本网讯（通讯员 彭云 王敏）4月18日至19日，九三学社湖北省第八次代表大会在汉召开，全国政协副主席、九三学社中央常务副主席邵鸿作视频讲话，中共湖北省委副书记李荣灿出席大会并讲话。我校九三学社委员会主 (...)  
-  
-📍 **Wuhan Institute of Technology** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[湖北乐金电气有限公司捐赠160万元支持学校发展](http://www.hubu.edu.cn/info/1246/38092.htm)  
-Hubei Lejin Electric Co., Ltd. donated 1.6 million yuan to support school development  
-> 4月22日，湖北乐金电气有限公司捐赠暨授牌仪式在校举行，乐金电气捐赠160万元支持湖北大学艺术学院建设发展。乐金电气董事长胡晓丽、副总经理张刘、技术总工顿华，湖北大学党委常委、副校长、教育发展基金会理 (...)  
-  
-📍 **Hubei University** - 🗓️  Publié le 2022-04-26  
-  * * *  
-[智慧校园：未来已来 拥抱未来](http://news.yangtzeu.edu.cn/info/1003/30590.htm)  
-Smart Campus: The future has come to embrace the future  
-> 记者 吴俊 (...)  
-  
-📍 **Yangtze University** - 🗓️  Publié le 2022-04-26  
+📍 **Wuhan University** - 🗓️  Publié le 2022-04-28  
   * * *  
